@@ -5,7 +5,7 @@
 
 🔭 I'm currently working on projects that solve real-life problems and make the world a better place.<br>    
 💬 Ask me about Web Development, Programming, or anything tech-related!<br>  
-📫 How to reach me: **lakshyasaxena12@gmail.com**<br>  
+📫 How to reach me: **lakshyasxn7351@gmail.com**<br>  
 😄 Pronouns: He/Him<br>  
 
 ![115834477-dbab4500-a447-11eb-908a-139a6edaec5c](https://user-images.githubusercontent.com/105775899/235299569-e15e9b1c-09cc-492a-ad8e-cef25979d4d1.gif)
